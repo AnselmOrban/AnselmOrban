@@ -32,7 +32,7 @@ The Church of the Discordian Orb is the religious community of Discordian Orbism
 |---|---|
 | Religion | Discordian Orbism |
 | Followers | Discordian Orbists |
-| Deity | The Great Discordian Orb |
+| Deities | The Holy Discordian Orbs |
 | Holy Book | The Orbible |
 | Religious Leader | The Orb Lord |
 | Holy Symbol | The Sacred Orb |
