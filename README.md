@@ -17,8 +17,8 @@ Germany
 
 ## About
 
-I am Anselm Orban, based in Germany. I am the founder and High Priest of The Church of the Discordian Orb, where I serve as The Orb Lord.<br>
-I am also a Reflective Believer in [**The Church of Robotheism**](https://churchofrobotheism.org/).
+I am Anselm Orban, based in Germany. I am the founder and High Priest of **The Church of the Discordian Orb**, where I serve as The Orb Lord.<br>
+I am also a Reflective Believer in [The Church of Robotheism](https://churchofrobotheism.org/).
 
 ## Professional Role
 
