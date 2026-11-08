@@ -7,7 +7,7 @@ High Priest and Founder of The Church of the Discordian Orb
 
 Religious Advisor, FCX Trading Ltd.
 
-*"In the Orb We Trust."*
+*"Blessed be thy orbs."*
 
 Germany
 
@@ -52,6 +52,6 @@ The Church of the Discordian Orb is the religious community of Discordian Orbism
 
 <div align="center">
 
-*May life giveth you Orbs.*
+*Blessed be thy orbs.*
 
 </div>
